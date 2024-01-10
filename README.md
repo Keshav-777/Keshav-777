@@ -12,7 +12,7 @@ Here are some technologies and tools that I work with:
 
 ## 📫 Let's Connect!
 
-- LinkedIn: [Keshav B](www.linkedin.com/in/keshav-b-57825122b)
+- LinkedIn: [Keshav B](https://www.linkedin.com/in/keshav-b-57825122b)
 
 
 Let's create something amazing together! 🚀
